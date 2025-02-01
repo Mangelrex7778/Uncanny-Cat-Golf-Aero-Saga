@@ -1,6 +1,4 @@
-Aquí tienes el texto actualizado con tu crédito como desarrollador y el reconocimiento a SH2K:  
 
----
 
 # Playtester Notice – Uncanny Cat Golf Aero Saga  
 
